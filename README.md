@@ -64,6 +64,7 @@ Nathan Njonge,
 * Alex Gathuri: [Email](mailto:gathurialex4@gmail.com)
 * Nathan Njonge: [Email](mailto:nathanwaithaka24@gmail.com)
 * Wanjiru Kinyara: [Email](mailto:wanjirukinyara@gmail.com)
+* Vivian Katheu: [Email](mailto:viviankatheu@gmail.com)
 
 
 
